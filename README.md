@@ -1,0 +1,1 @@
+# Validador-de-propietarios-de-NFT-VOTTUN
